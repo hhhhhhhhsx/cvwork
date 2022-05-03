@@ -1,2 +1,0 @@
-# cvwork
-computer big work
